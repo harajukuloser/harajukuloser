@@ -8,6 +8,7 @@ roblox games like regretevator 🐢 , dress to impress 🐟 and dandysworld the 
 i bing kid vampire every 🐢 once awhile, aswell as VEWN 🐟 films and more . . .
 yeha uhmmm idk ehat else to say other then im always on ponytown hehe!! byebye :)
 
+ rentry; https://rentry.co/cutietaco , strawpage; https://staircas.straw.page
 
 <!--
 **harajukuloser/harajukuloser** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
