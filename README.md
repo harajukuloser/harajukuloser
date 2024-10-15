@@ -1,5 +1,5 @@
 
-![image](https://64.media.tumblr.com/147ac860ae6ede24ebd252b10f33ff04/af53e587c3a40f47-d8/s500x750/e0f8fcb24b)
+![image](https://static.wikia.nocookie.net/ribbon-rabbit-daycare/images/b/b9/Taffy_Chibi.png/revision/latest?)
 
 
   https://rentry.co/harajukuloser ,  https://staircas.straw.page
