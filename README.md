@@ -1,5 +1,5 @@
 
-![image](https://github.com/user-attachments/assets/9e9294ce-ac7a-448b-a4a2-94f0f2d52767)
+![image]([https://github.com/user-attachments/assets/9e9294ce-ac7a-448b-a4a2-94f0f2d52767](https://64.media.tumblr.com/147ac860ae6ede24ebd252b10f33ff04/af53e587c3a40f47-d8/s500x750/e0f8fcb24b))
 
 
   https://rentry.co/harajukuloser ,  https://staircas.straw.page
