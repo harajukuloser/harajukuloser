@@ -1,7 +1,8 @@
 
-![image](https://github.com/user-attachments/assets/a46a525c-b880-4a6b-8b88-75d40648e75c)
+![image](https://github.com/user-attachments/assets/9e9294ce-ac7a-448b-a4a2-94f0f2d52767)
 
- rentry; https://rentry.co/cutietaco , strawpage; https://staircas.straw.page
+
+  https://rentry.co/harajukuloser ,  https://staircas.straw.page
 
 <!--
 **harajukuloser/harajukuloser** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
