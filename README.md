@@ -2,7 +2,7 @@
 ![image](https://static.wikia.nocookie.net/phighting/images/9/99/Scythe_New_Render.png/revision/latest/scale-to-width-down/1000?cb=20240102233816)
 
 
-  https://rentry.co/harajukuloser ,  https://staircas.straw.page
+  https://rentry.co/harajukuloser ,  https: https://scythey.straw.page
 
 <!--
 **harajukuloser/harajukuloser** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
