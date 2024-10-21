@@ -1,5 +1,5 @@
 
-![image](https://static.wikia.nocookie.net/ribbon-rabbit-daycare/images/b/b9/Taffy_Chibi.png/revision/latest?)
+![image](https://static.wikia.nocookie.net/phighting/images/9/99/Scythe_New_Render.png/revision/latest/scale-to-width-down/1000?cb=20240102233816)
 
 
   https://rentry.co/harajukuloser ,  https://staircas.straw.page
